@@ -26,4 +26,4 @@ Chopped Tomatoes
 Cover and simmer(12-15 min)
 Put cooked chicken in and cover with coriander
 ## Credit / Source
-[Chicken and Rice](https://www.youtube.com/shorts/y4rxduzwBeI?feature=share)https://www.youtube.com/shorts/y4rxduzwBeI?feature=share
+[Chicken and Rice](https://www.youtube.com/shorts/y4rxduzwBeI?feature=share)
