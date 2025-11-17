@@ -26,3 +26,5 @@ Method:
 5. Air fry at 200 degrees C for 15 minutes
 6. Meanwhile, in a small bowl add the sauce ingredients above and mix well with a spoon
 7. Smear on extra sweet chilli sauce on each tender before dipping in the bang bang sauce.
+
+8. https://www.youtube.com/shorts/b_5yaiDti-4
