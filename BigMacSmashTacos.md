@@ -66,4 +66,3 @@ A delicious low-carb twist on the classic Big Mac, transformed into convenient t
 
 ---
 
-*If you like this recipe and want more like it, check out my recipe cookbook with over 150+ recipes and FREE LIFETIME UPDATES!*
