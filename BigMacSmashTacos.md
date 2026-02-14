@@ -46,7 +46,7 @@ A delicious low-carb twist on the classic Big Mac, transformed into convenient t
 
 2. **Season the beef:** Mix the ground beef with garlic powder, onion powder, salt, and pepper.
 
-3. **Cook the beef:** Form into thin patties and cook in a hot skillet until crispy and cooked through.
+3. **Cook the beef:** Form into thin patties and cook in a hot skillet 3-4 minutes beef side down, then flip and cook 2-3 minutes tortilla side until crispy and cooked through.
 
 4. **Assemble the tacos:** 
    - Warm the tortillas
