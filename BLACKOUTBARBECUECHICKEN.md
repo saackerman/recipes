@@ -6,8 +6,9 @@
 ## Ingredients
 
 ### Protein
-- 4 lbs boneless, skinless chicken thighs  
-- 1 lb boneless, skinless chicken breast  
+- 5 lbs boneless, skinless chicken thighs
+- or
+- 5 lb boneless, skinless chicken breast  
 
 ### Sauce
 - 1½ cups smoky barbecue sauce  
