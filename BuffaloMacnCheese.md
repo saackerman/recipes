@@ -1,4 +1,4 @@
-# Buffalo Mac & Cheese
+# 🥣 Buffalo Ranch High-Protein Mac Bowls
 
 ## Ingredients
 
@@ -29,22 +29,65 @@
 
 ---
 
-## Instructions
 
-1. **Prepare the Chicken:** Trim the fat off the chicken breasts and use a meat tenderizer to flatten them for even cooking.
-2. **Season & Cook:** Place the chicken in a bowl and season with salt, pepper, garlic, and onion powder. Cook in a skillet over medium-high heat using a heavy coating of oil spray.
-3. **Boil Pasta:** While the chicken finishes, boil 16 oz of your preferred pasta until cooked.
-4. **Chop & Combine:** Once cooked, chop the chicken into bite-sized pieces. In a large pot, combine the chopped chicken, cooked pasta, sun-dried tomatoes, bacon bits, both bags of shredded cheese, and American cheese.
-5. **Sauce it Up:** Add the ranch seasoning packet, 1 cup of fat-free ranch, and 1 cup of buffalo sauce. Mix everything thoroughly until the cheese is melted and the pasta is well-coated.
-6. **Portioning:** Divide the mixture into 10 meal prep containers.
+Source: Cookingforgains (YouTube Shorts)
 
----
+Yields: 10 Servings [01:14]
 
-## Reheating Tips
+Focus: High Protein / Meal Prep [00:00]
 
-- **From Fridge:** Microwave for 60 seconds.
-- **From Freezer:** Add a small splash of water and cover with a napkin. Microwave for 2 minutes and 30 seconds.
+🛒 Ingredients
+The Protein & Pasta
+3 lbs Chicken Breast (trimmed and tenderized) [00:08]
 
----
+16 oz Pasta (Regular or Protein pasta) [00:39]
 
-🎥 [Watch the full video here](https://www.youtube.com/shorts/zNTURkMY7JU)
+1 bag Real Bacon Bits [00:54]
+
+The Sauce & Cheese
+1 bag Fat-Free Cheddar (shredded) [00:56]
+
+1 bag Fat-Free Mozzarella (shredded) [00:58]
+
+3 slices American Cheese [01:06]
+
+1 cup Frank’s RedHot (Buffalo Sauce) [01:04]
+
+1 cup Fat-Free Ranch Dressing [01:02]
+
+1 packet Ranch Seasoning [01:01]
+
+1 bag Sun-dried Tomatoes [00:52]
+
+Chicken Seasonings [00:19]
+Sea salt flakes
+
+Black pepper
+
+Garlic powder
+
+Onion powder
+
+Low-calorie oil spray [00:31]
+
+👨‍🍳 Instructions
+Prep the Chicken: Trim excess fat and use a meat tenderizer to flatten the meat so it cooks evenly [00:11].
+
+Season & Sear: Season with salt, pepper, garlic, and onion powder [00:21]. Cook in a skillet over medium-high heat with a heavy layer of oil spray [00:35].
+
+Boil Pasta: While the chicken is cooking, boil 16 oz of pasta [00:39].
+
+Chop & Combine: Chop the cooked chicken into pieces [00:46]. In a large pot, add the chicken, sun-dried tomatoes, and bacon bits [00:51].
+
+The Cheesy Mix: Add the shredded cheddar, mozzarella, and the 3 slices of American cheese [01:06].
+
+Sauce it Up: Add the ranch seasoning packet, fat-free ranch, and Frank's RedHot [01:01]. Add the cooked pasta and mix until fully combined [01:07].
+
+Portion: Divide the mixture into 10 separate meal prep containers [01:14].
+
+⏲️ Reheating Instructions
+From Fridge: Microwave for 60 seconds [01:16].
+
+From Freezer: Add a small splash of water and cover with a napkin. Microwave for 2 minutes and 30 seconds [01:19].
+
+Video URL: https://www.youtube.com/shorts/zNTURkMY7JU
