@@ -8,7 +8,7 @@
 | [00:03](https://www.youtube.com/watch?v=dQw4w9WgXcQ&t=3s) | —I lost 40 lbs eating like this—tuna cucumber salad! |
 | [00:07](https://www.youtube.com/watch?v=dQw4w9WgXcQ&t=7s) | And this only took me 20 minutes to make. Exquisite! |
 | [00:10](https://www.youtube.com/watch?v=dQw4w9WgXcQ&t=10s) | Cucumber, red onion, corn, two cans of tuna, salt and pepper to taste, some fresh dill. |
-| [00:15](https://www.youtube.com/watch?v=dQw4w9WgXcQ&t=15s) | One cup of non-fat Greek yogurt, light mayo, mustard, garlic salt, a squeeze of lemon, and a drizzle of honey. |
+| [00:15](https://www.youtube.com/watch?v=dQw4w9WgXcQ&t=15s) | Dressing, One cup of non-fat Greek yogurt, light mayo, mustard, garlic salt, a squeeze of lemon, and a drizzle of honey. |
 | [00:22](https://www.youtube.com/watch?v=dQw4w9WgXcQ&t=22s) | That is insane! You put this on a flip-flop and it tastes good! |
 
 ---
